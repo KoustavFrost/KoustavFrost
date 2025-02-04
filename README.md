@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, KoustavFrost here 👋🏼<br>An average software developer doing average software developer stuff in the southern part of India.<br>Find my socials below to hire me.<br>Thanks.
+Hello, KoustavFrost here 👋🏼<br>An average software developer with 5+ years of experience doing average software developer stuff in the southern part of India.<br>Find my socials below to hire me.<br>Thanks.
 
 
 ## 🌐 Socials:
